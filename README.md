@@ -1,0 +1,2 @@
+# premium-knapped-flint-001-knapped-flint-face-selection-a
+Tired of losing track of which flint face you selected for your wall or where you left off in your knapping course? This Notion template ends the chaos.  The Knapped Flint Face Selection and Course Tracker centralizes your entire creative workflow—from face selection to skill progression. No more scattered notes or forgotten favorites; you get a si
